@@ -1,4 +1,4 @@
-# Savoy Hapkido
+# Savoy Hapkido and Li'l Hawks Hapkido
 
 Classes every Monday 5-6pm (kids) and 6-7pm (adults) at [Band of Brothers Martial Arts](http://bobmartialarts.com/) in Bloomingon, IL.
 
@@ -10,8 +10,6 @@ Check out our [Facebook Page](https://www.facebook.com/SavoyHapkido)! Also see [
 
 ## About Us
 
-Hapkido techniques use the principal of non-resistance, circular motion, and the water principal for self defense. No previous martial arts experience or athletic ability is necessary.
+Hapkido techniques use the principles of non-resistance, circular motion, and water for self defense. No previous martial arts experience or athletic ability is necessary.
 
 Hapkido is one of the best martial arts for practical self-defense. We do not prepare for sporting tournaments; we do not memorize elaborate forms; all we do is practice ways to escape from, throw, ground-fight, choke, kick, punch, joint-lock or otherwise finish an attacker.
-
-More content coming soon...
