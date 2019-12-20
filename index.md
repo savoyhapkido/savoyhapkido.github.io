@@ -1,7 +1,9 @@
 # Savoy Hapkido
 
-Classes every Monday 7:30-8:30pm and Wednesday 7:30-9pm at HMD Academy of Taekwondo in Savoy, IL.
+Classes every Monday 7:30-8:30pm and Wednesday 7:30-9pm at [HMD Academy of Taekwondo](https://www.hmdacademy.com/) in Savoy, IL.
 
-See our [program page on HMD's site](https://www.hmdacademy.com/programs/hapkido/)
+Classes every Monday 5-6pm (kids) and 6-7pm (adults) at [Band of Brothers Martial Arts](http://bobmartialarts.com/) in Bloomingon, IL.
 
-The remaining content for this site is under construction...
+See [our program page](https://www.hmdacademy.com/programs/hapkido/) on HMD's site.
+
+More content coming soon...
