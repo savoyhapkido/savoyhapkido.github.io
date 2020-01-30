@@ -1,5 +1,7 @@
 # Savoy Hapkido and Li'l Hawks Hapkido
 
+Come join us!
+
 ![Hapkido Location](hapkidolocations.webp)
 
 ## Class Schedule
@@ -46,6 +48,11 @@ The way an attacker’s own force can be used against himself (do not meet force
 
 3. **Water Principle**:
 The way one flows around an attacker (like water around a rock) and counterattacks at the attacker’s weaknesses.
+
+Hapkido emphasizes learning how to:
+
+* Fall safely
+* Use an attacker's own force against himself instead of trying to match it with our own strength.
 
 Classes every Monday 5-6pm (kids) and 6-7pm (adults) at [Band of Brothers Martial Arts](http://bobmartialarts.com/) in Bloomingon, IL.
 
