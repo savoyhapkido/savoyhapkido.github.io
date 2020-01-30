@@ -36,22 +36,22 @@ Phone 217-352-3939
 Three basic principles of Hapkido:
 
 
-1. Circular Motion 
+1. **Circular Motion**:
 The way a circle is used to move an attacker off balance. The same circular motion is used to gain speed and force to take that attacker to the ground
  
 
-2. Non-Resistance 
+2. **Non-Resistance**: 
 The way an attacker’s own force can be used against himself (do not meet force with force). The way one uses minimal resistance and counterforce to defend oneself from an attacker.
  
 
-3. Water Principle
+3. **Water Principle**:
 The way one flows around an attacker (like water around a rock) and counterattacks at the attacker’s weaknesses.
 
 Classes every Monday 5-6pm (kids) and 6-7pm (adults) at [Band of Brothers Martial Arts](http://bobmartialarts.com/) in Bloomingon, IL.
 
 Classes every Monday 7:30-8:30pm and Wednesday 7:30-9pm at [HMD Academy of Taekwondo](https://www.hmdacademy.com/) in Savoy, IL.
 
-If you would like to try a class, contact us at waynewilliams4@gmail.com.
+If you would like to try a class, contact us at waynewilliams4@gmail.com
 
 Check out our [Facebook Page](https://www.facebook.com/SavoyHapkido)! Also see [our program page](https://www.hmdacademy.com/programs/hapkido/) on HMD's site.
 
