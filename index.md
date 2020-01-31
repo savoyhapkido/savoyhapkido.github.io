@@ -33,7 +33,7 @@ Savoy, IL
 Phone 217-352-3939
 ```
 
-## Hapkido: The Way of Cordinated Power
+## Hapkido: The Way of Coordinated Power
 
 Three basic principles of Hapkido:
 
